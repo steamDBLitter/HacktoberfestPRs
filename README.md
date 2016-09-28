@@ -1,4 +1,4 @@
-wtf is dis shit - no formatting and shit, doesn't even look like word.
+wtf is dis shit - no formatting and shit, doesn't even look like word. Well just add whatever you want short of anything illegal.
 
 # German Banana:
 
