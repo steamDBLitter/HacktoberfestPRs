@@ -30,4 +30,4 @@ wtf is dis shit - no formatting and shit, doesn't even look like word. Well just
 
 # ![](https://i.redd.it/pa7cmzmry7rz.jpg)
 
-Also this almost feels like chitting
+Also this almost feels like cheating
