@@ -48,3 +48,5 @@ Banana Fish
 ![](https://i.imgur.com/apIxlen.jpg)
 
 ![](https://i.imgur.com/rA8KLJR.jpg)
+
+![](https://cdn.discordapp.com/attachments/392023667384647680/498212570121895957/unknown.png)
