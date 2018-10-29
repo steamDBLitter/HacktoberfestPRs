@@ -8,6 +8,8 @@ wtf is dis shit - no formatting and shit, doesn't even look like word. Well just
 
 # It’s the Nutshack! (Yee, yee) It’s the Nutshack! (What he say?) It’s the Nutshack! (Oh, yes! Yeeeah) It’s the Nutshack! (Hey, I got the Nutshack!) It’s the Nutshack! (‘The fuck you say, boyee?) It’s the Nutshack! (It’s the Nutshack!) It’s the Nutshack! (It’s the Nutshack!) It’s the Nutshack! (It’s the Nutshack…) It’s the Nutshack! (Hey!) It’s the Nutshack! (Piece a’ nuts!) It’s the Nutshack! (Whoooa!) It’s the Nutshack! Hoo-ugh! Phil’s from the stone, Jack’s from the pier, Horatio or Horat so beer! Tito Dick “Dickman”, baby! He hates Phil and loves the ladies. Jack’s cool-ass lazy, he’s still learnin’. Number one Cherry Pie, still a virgin. Chita, meet da freak of da weekah! Phil’s homegirl that Jack wanna keep her, But that’s not happenin’, either! Shakin’ like a seizure, hold up, boys and spark this, take a breather. With that reefer in my lungs, I got grapes, what you watchin’, son? It’s the Nutshack! (Yah!) It’s the Nutshack! (AAAAARRRGH!) It’s the Nutshack! It’s the Nutshack!
 
+# ! []_(https://cdn.techjuice.pk/wp-content/uploads/2017/09/gif.gif)
+
 # ![](https://i.imgur.com/eV53U7h.jpg)
 
 # ![](https://i.imgur.com/IWnPo5g.png)
