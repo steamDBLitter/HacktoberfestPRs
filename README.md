@@ -1,3 +1,7 @@
+![Some sort of logo, possibly related to this repo; Or it might be another German Banana](https://hacktoberfest.digitalocean.com/assets/logo-hf19-full-10f3c000cea930c76acc1dedc516ea7118b95353220869a3051848e45ff1d656.svg)
+
+![](https://i.miomoto.de/thinking.gif)
+
 wtf is dis shit - no formatting and shit, doesn't even look like word. Well just add whatever you want short of anything illegal.
 
 # German Banana:
@@ -56,3 +60,5 @@ Banana Fish
 ![](http://devhumor.com/content/uploads/images/September2018/progrmmer.jpg)
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSCX_xy2NBJ9j8jcExr69uXiyUvGquq45TW2tnjenKRux66Pd_jFw)
+
+![](https://i.kym-cdn.com/entries/icons/original/000/028/021/work.jpg)
