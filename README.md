@@ -1,3 +1,5 @@
+![Some sort of logo, possibly related to this repo; Or it might be another German Banana](https://hacktoberfest.digitalocean.com/assets/logo-hf19-full-10f3c000cea930c76acc1dedc516ea7118b95353220869a3051848e45ff1d656.svg)
+
 ![](https://i.miomoto.de/thinking.gif)
 
 wtf is dis shit - no formatting and shit, doesn't even look like word. Well just add whatever you want short of anything illegal.
