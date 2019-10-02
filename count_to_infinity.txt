@@ -1,3 +1,4 @@
+-Infinity
 1
 12
 8
@@ -15,3 +16,4 @@
 .26
 NaN
 INT_MAX
+Infinity
